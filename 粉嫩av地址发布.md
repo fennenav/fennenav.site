@@ -4,15 +4,15 @@
 ### 最新发布地址：
 fennenavfb10.com ~ fennenavfb20.com
 ### 最新地址：
-fn722.com
+fn95av.cc
 #### 备用地址1：
-fn717.com
+fn15av.cc
 #### 备用地址2：
-fn19av423.cc
+fn65av.cc
 #### 备用地址3：
-fn23av608.cc
+fn20av.cc
 #### 备用地址4：
-fn14av610.cc
+fn62av.cc
 #### 永久地址：fennenav.com
 #### 历史地址：fennenav.com
 ## 如果不能訪問，请查看備用地址↑↑↑↑或者曆史網址
