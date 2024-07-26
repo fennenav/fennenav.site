@@ -4,15 +4,15 @@
 ### 最新发布地址：
 fennenavfb10.com ~ fennenavfb20.com
 ### 最新地址：
-fn26x354.xyz
-#### 备用地址1：
-fn22x169.xyz
-#### 备用地址2：
-fn24x680.xyz
-#### 备用地址3：
-fn23x843.xyz
-#### 备用地址4：
 fn23x006.xyz
+#### 备用地址1：
+fn21x332.xyz
+#### 备用地址2：
+fn17x984.xyz
+#### 备用地址3：
+fn17x565.xyz
+#### 备用地址4：
+fn15x996.xyz
 #### 永久地址：fennenav.com
 #### 历史地址：fennenav.com
 ## 如果不能訪問，请查看備用地址↑↑↑↑或者曆史網址
