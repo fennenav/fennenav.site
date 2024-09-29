@@ -1,18 +1,18 @@
-#### 粉嫩av地址发布（强烈建议收藏本发布页网址永不走丢）
+![image](https://github.com/user-attachments/assets/ceea07ca-189a-488b-b48a-edec5c311eca)#### 粉嫩av地址发布（强烈建议收藏本发布页网址永不走丢）
 #### 移动屏蔽本站，请用联通。电信网络访问
 #### 2024-7-26更新
 ### 最新发布地址：
 fennenavfb10.com ~ fennenavfb20.com
 ### 最新地址：
-fn23x006.xyz
+fn03av.cc
 #### 备用地址1：
-fn21x332.xyz
+fn30av.cc
 #### 备用地址2：
-fn17x984.xyz
+fn84av.cc
 #### 备用地址3：
-fn17x565.xyz
+fn49av.cc
 #### 备用地址4：
-fn15x996.xyz
+fn25av.cc
 #### 永久地址：fennenav.com
 #### 历史地址：fennenav.com
 ## 如果不能訪問，请查看備用地址↑↑↑↑或者曆史網址
