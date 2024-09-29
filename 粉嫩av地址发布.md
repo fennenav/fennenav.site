@@ -1,6 +1,6 @@
-![image](https://github.com/user-attachments/assets/ceea07ca-189a-488b-b48a-edec5c311eca)#### 粉嫩av地址发布（强烈建议收藏本发布页网址永不走丢）
+#### 粉嫩av地址发布（强烈建议收藏本发布页网址永不走丢）
 #### 移动屏蔽本站，请用联通。电信网络访问
-#### 2024-7-26更新
+#### 2024-9-29更新
 ### 最新发布地址：
 fennenavfb10.com ~ fennenavfb20.com
 ### 最新地址：
